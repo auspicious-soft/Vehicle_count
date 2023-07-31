@@ -44,4 +44,4 @@ SM
 
 ## Author
 
-[Sanjaya Maharana](https://www.linkedin.com/in/sanjaya-maharana-363189137/)
+[auspicious](https://www.linkedin.com/in/sanjaya-maharana-363189137/)
